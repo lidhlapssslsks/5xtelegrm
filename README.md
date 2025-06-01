@@ -22,3 +22,11 @@ https://www.mediafire.com/file/2zvq84d65320j6m/0Toxic_Street_v1.zip/file
 
 
 مدونه مدفوعه رابط القناه https://t.me/x5balck
+
+
+**ماب** الكويت
+https://www.modland.net/beamng.drive-mods/maps/kuwait-city-map-beta-release.html
+
+
+**سيارة الهجوله**
+https://modsfire.com/IZPd3dZ26veS31c
