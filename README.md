@@ -30,3 +30,7 @@ https://www.modland.net/beamng.drive-mods/maps/kuwait-city-map-beta-release.html
 
 **سيارة الهجوله**
 https://modsfire.com/IZPd3dZ26veS31c
+
+
+**ماب تشاليح المحاكي**
+**https://gofile.io/d/w8QJWE**
