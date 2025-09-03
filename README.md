@@ -38,3 +38,8 @@ https://modsfire.com/IZPd3dZ26veS31c
 
 هلي 2004
 https://gofile.io/d/KoAHXG
+
+
+
+**ربع خويلد 23**
+[ربع خويلد 23](https://www.dropbox.com/scl/fi/pz8myd1miwj6ni3wec6qa/Land_Cruiser_j70_70Y_KHwyl.zip?rlkey=ema5fazes9pdo76bjlts447vd&st=j70uxmh5&dl=1)
