@@ -69,3 +69,7 @@ https://gofile.io/d/KoAHXG
 
 
 رابط المود الاساسي: https://www.beamng.com/resources/dynamic-rain.34597/ 
+
+
+**النترا 19**
+https://cdn.discordapp.com/attachments/1367921172238307572/1412340523074715680/Elantra_19_Ray.zip?ex=68b9419c&is=68b7f01c&hm=5a47979d9b2423937bd79fc89cf2f15840339e736c6873052b2b910d990c6e22&
