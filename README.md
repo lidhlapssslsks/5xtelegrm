@@ -53,3 +53,19 @@ https://gofile.io/d/KoAHXG
 
 
 @everyone
+
+مود المطر
+`Dynamic Rain` 
+***
+مود امطار واقعي
+
+يشتغل عشوائي او انت تقدر تشغله متى ما تبيه
+
+اصوات امطار واقعية
+
+التحكم:
+
+(ALT+ R) تشغيل المود
+
+
+رابط المود الاساسي: https://www.beamng.com/resources/dynamic-rain.34597/ 
