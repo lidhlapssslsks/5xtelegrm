@@ -71,5 +71,14 @@ https://gofile.io/d/KoAHXG
 رابط المود الاساسي: https://www.beamng.com/resources/dynamic-rain.34597/ 
 
 
-**النترا 19**
+**النترا 19**&
+
 https://cdn.discordapp.com/attachments/1367921172238307572/1412340523074715680/Elantra_19_Ray.zip?ex=68b9419c&is=68b7f01c&hm=5a47979d9b2423937bd79fc89cf2f15840339e736c6873052b2b910d990c6e22&
+
+**ImpalaImpala 2017**
+
+https://cdn.discordapp.com/attachments/1367921172238307572/1411531367824756857/Impala_2017.zip?ex=68b99bc7&is=68b84a47&hm=dcdf9f85ac782b8ecb3d9a25c7c33d6864717a49c334530318a689fcc04ca1aa&
+
+هايلوكس 15 جامد
+
+https://cdn.discordapp.com/attachments/1367921172238307572/1411257491072880692/Hilux_2015.zip?ex=68b94575&is=68b7f3f5&hm=028304123cded2473d56f5aac1c1301a3849851e0f944790228d5d3fa91016dd&
