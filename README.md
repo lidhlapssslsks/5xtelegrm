@@ -86,3 +86,6 @@ https://cdn.discordapp.com/attachments/1367921172238307572/1411257491072880692/H
 النترا قديم 
 
 https://cdn.discordapp.com/attachments/1367921172238307572/1411146372597415987/m7accent.zip?ex=68b986b9&is=68b83539&hm=307e9e7f2ffb4bad1adbd53240673618eac54bdfd1455053c88fdf76d6e303b9&
+
+
+لكسز https://gofile.io/d/oiuUHr
